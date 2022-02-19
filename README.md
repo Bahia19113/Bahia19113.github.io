@@ -1,4 +1,5 @@
-## Welcome to GitHub Pages
+# Welcome to Samantha's GitHub Pages
+Owned by Bahia19113
 
 You can use the [editor on GitHub](https://github.com/Bahia19113/Bahia19113.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
