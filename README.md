@@ -7,7 +7,9 @@ Compiled by Bahia19113
 
 ### 1st Mini Album 
 ![official kep1er_1645796559094684](https://user-images.githubusercontent.com/99947786/155729693-af0c8a8f-bb57-4514-90ca-38f235e51b6c.jpg)
+
 ***
+
 | Songs Included    | Spotify Link | Youtube Link     |
 | :---        |    :----:   |          ---: |
 | 01. See The Light      |[Spotify 🥰](https://open.spotify.com/track/01NMzP2OnXFBktijTbnVOb?si=d4cc7cb82e2f43c8) |  [Youtube 👀](https://youtu.be/czwscumbHQc)   |
